@@ -1,2 +1,2 @@
 # raterappers
-rating rappers
+opinions are arseholes, everyone has one
