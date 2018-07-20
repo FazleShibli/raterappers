@@ -1,2 +1,2 @@
 # raterappers
-opinions are arseholes, everyone has one
+opinions are like arseholes, everyone has one
